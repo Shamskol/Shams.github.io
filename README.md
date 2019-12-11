@@ -1,1 +1,0 @@
-# Shamskol.github.io
